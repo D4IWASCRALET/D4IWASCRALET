@@ -1,6 +1,7 @@
 # ꣑୧
 
-![image](https://github.com/user-attachments/assets/8fc209df-329f-4821-972f-131712e50e2a)
+![image](https://github.com/user-attachments/assets/e070e123-4b64-4ead-a2d0-035090b1e1ab)
+
 
 **Helooo! ∘˚˳** 
 
